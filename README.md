@@ -1,1 +1,1 @@
-# zzzzBagodelnaRage
+# INITIAL COMMIT 08.05.2025 "BROKEN HAND"
